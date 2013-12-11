@@ -7,3 +7,4 @@ He also likes:
 - Long walks on the beach
 - The Perkis System
 - Pina Coladas
+- Golden poodles
